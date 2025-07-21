@@ -1,5 +1,8 @@
 # 🎮 After Accident–Sinopse-project
 
+![WhatsApp Image 2025-07-21 at 14 22 30](https://github.com/user-attachments/assets/ec337891-62f3-4373-8b8e-3e0a17c25688)
+
+
 Vanessa Costa é uma psicóloga famosa, seguida por milhões nas redes sociais e conhecida por sua abordagem revolucionária no tratamento de traumas. Ela é convidada para eventos, dá palestras em universidades e participa de podcasts pelo mundo todo. Mas, por trás da imagem pública, sua vida pessoal está desmoronando.
 
 Logo após voltar de uma viagem internacional, Vanessa presencia uma cena que muda tudo: ela vê seu marido, um ex-agente de segurança de alto escalão, saindo de um hotel com sua nova assistente — jovem, carismática e claramente mais do que uma colega de trabalho. Em segundos, o mundo dela vira de cabeça para baixo.
